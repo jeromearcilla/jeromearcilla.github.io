@@ -1,1 +1,0 @@
-# jeromearcilla.github.io
